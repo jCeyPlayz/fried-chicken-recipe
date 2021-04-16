@@ -1,0 +1,1 @@
+Mix the wet coating, and dip the chicken, then mix the seasoning flour and dip  the chicken there, then put the stove in medium heat, boil oil for twenty minutes, check oil, deep fry chicken after marinating, for legs 15-16 minutes, thighs 18-20 minutes.(bigger the chicken part the longer it takes to cook) 
